@@ -1,7 +1,10 @@
+「𝐙ᴏʏᴀ ✘ 𝐌ᴜsɪᴄ」
+
 ### 🚩🚩 जय श्री राधे 🚩🚩
 <h1 align="center"
 
-   <h1> <img src="https://graph.org/file/772ba470b6b1d5a4f49d6.jpg" height="90px" width="80px"> 𝗛𝗘𝗬 𝗧𝗛𝗘𝗥𝗘 , 𝗧𝗛𝗜𝗦 𝗜𝗦 𓆩◕🇭𝐀𝐑𝐑𝐘◕𓆪 =‌𐏓 𝄗⃝🇮🇳™ </h1>
+   <h1> <img src="https://graph.org/file/772ba470b6b1d5a4f49d6.jpg" height="90px" width="80px"> 
+      𝗛𝗘𝗬 𝗧𝗛𝗘𝗥𝗘 , 𝗧𝗛𝗜𝗦 𝗜𝗦 𓆩◕🇭𝐀𝐑𝐑𝐘◕𓆪 =‌𐏓 𝄗⃝🇮🇳™ </h1>
 <p align="center">
 
 ㅤ[![GIF](https://github.com/WCGKING/WCGKING/blob/main/WCGKING.gif)](https://github.com/harry27173/harry27173)
